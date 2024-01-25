@@ -1,0 +1,2 @@
+Mācību projekta apraksts.
+
